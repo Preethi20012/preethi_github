@@ -1,1 +1,1 @@
-# preethi_github
+project details
